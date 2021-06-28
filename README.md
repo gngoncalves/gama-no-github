@@ -1,0 +1,3 @@
+Até o momento, o curso do Gama Academy tem agregado muito conhecimento para mim. Apesar de eu já ser da área técnica e ter aprendido o "básico do básico", nunca tinha me aprofundado da forma como estou fazendo agora, além de estar totalmente focado no curso.
+Para mim, que busco uma transição de carreira, e também pela minha personalidade de aprender coisas novas, está sendo e tenho certeza que continuará sendo uma experiência muito gratificante e proveitosa!
+Agradeço desde já a oportunidade que me foi concedida, para a minha capacitação enquanto ser humano e também como um profissional.
